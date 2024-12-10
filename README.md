@@ -1,2 +1,2 @@
 # MarlonKuna26-
-My repository
+Hi, friends!
